@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Tam, call me Kai.
 - A back-end developer — Who code for food and write for fun :)
-- I love chichi so much <3
+- I love chichi so much.
